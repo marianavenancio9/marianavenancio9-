@@ -5,4 +5,4 @@
 ### meu e-mail
 -00001086594794s@al.educacao.sp.gov.br 
 
-![](https://tenor.com/pt-BR/view/okay-penelope-bridgerton-featherington-nicola-gif-20215115****)
+![](https://media.tenor.com/Nad3XaT_fmMAAAAM/okay-penelope.gif)
